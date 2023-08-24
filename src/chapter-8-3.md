@@ -1,5 +1,3 @@
-Evaluating and Adjusting Conflict Resolution Strategies over Time
-=======================================================================================================================================
 
 Effective conflict resolution requires ongoing evaluation and adjustment of conflict resolution strategies over time. In this chapter, we will explore strategies for evaluating and adjusting conflict resolution programs and initiatives.
 

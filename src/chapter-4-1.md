@@ -1,5 +1,3 @@
-Understanding Different Approaches to Conflict Resolution
-=======================================================================================================
 
 Conflict is a normal part of workplace interactions, and there are several approaches to conflict resolution that individuals and organizations can use to effectively manage conflicts. In this chapter, we will explore different approaches to conflict resolution.
 

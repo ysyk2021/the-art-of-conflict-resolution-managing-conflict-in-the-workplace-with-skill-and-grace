@@ -1,5 +1,3 @@
-Chapter 7: Strategies for Difficult Conversations
-=================================================
 
 Difficult conversations are a natural part of working in teams and organizations. Whether it is addressing performance issues, discussing sensitive topics, or providing constructive feedback, effective communication is critical to managing conflict and building strong working relationships. In this chapter, we will explore best practices for addressing difficult conversations with empathy and respect, preparing for difficult conversations, and handling emotional reactions.
 

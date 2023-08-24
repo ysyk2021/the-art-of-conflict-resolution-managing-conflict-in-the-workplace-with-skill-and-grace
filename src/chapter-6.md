@@ -1,5 +1,3 @@
-Chapter 6: Managing Conflict in Teams and Organizations
-=======================================================
 
 Conflict is a natural part of working in teams and organizations. Successfully managing conflict requires effective communication, collaboration, and a willingness to acknowledge and address differences. In this chapter, we will explore best practices for managing conflict within and between teams, addressing conflict with colleagues and supervisors, and resolving conflict across departments and organizations.
 

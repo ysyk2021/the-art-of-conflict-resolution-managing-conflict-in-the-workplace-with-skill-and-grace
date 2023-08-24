@@ -1,5 +1,3 @@
-Handling Emotional Reactions and Defusing Tension
-====================================================================================================
 
 Difficult conversations can be emotionally charged and challenging to manage. In this chapter, we will explore strategies for handling emotional reactions and defusing tension in difficult conversations.
 

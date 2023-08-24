@@ -1,5 +1,3 @@
-Preparing for Difficult Conversations
-========================================================================================
 
 Difficult conversations are an inevitable part of workplace conflict. However, they can be managed with skill and grace through proper preparation. In this chapter, we'll explore strategies for preparing for difficult conversations.
 

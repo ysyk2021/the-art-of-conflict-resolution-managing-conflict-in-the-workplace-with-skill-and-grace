@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Nature of Conflict
-===============================================
 
 Conflict is a natural part of human interaction, and it can arise in any setting, including the workplace. In this chapter, we will explore the nature of conflict by recognizing different types of conflict, understanding the causes and triggers of conflict, and identifying the stages of conflict escalation.
 

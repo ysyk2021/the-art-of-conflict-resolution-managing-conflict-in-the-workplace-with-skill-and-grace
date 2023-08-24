@@ -1,5 +1,3 @@
-Addressing Sensitive Topics with Empathy and Respect
-=======================================================================================================
 
 Difficult conversations are a part of life, and they can often be the cause of conflict or tension in the workplace. However, when handled with empathy and respect, difficult conversations can lead to positive outcomes and strengthened relationships. In this chapter, we'll explore some strategies for addressing sensitive topics with empathy and respect.
 

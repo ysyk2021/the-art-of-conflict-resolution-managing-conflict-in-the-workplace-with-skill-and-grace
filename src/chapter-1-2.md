@@ -1,5 +1,3 @@
-Historical Perspectives on Conflict Resolution Theory and Practice
-==================================================================================================================
 
 Conflict resolution is not a new concept, and its development can be traced back to ancient times. Every culture has developed methods for resolving conflicts, from tribal councils to modern courts of law. In this chapter, we will explore the historical perspectives on conflict resolution theory and practice.
 

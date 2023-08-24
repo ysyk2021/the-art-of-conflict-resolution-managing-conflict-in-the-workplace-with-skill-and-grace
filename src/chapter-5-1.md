@@ -1,5 +1,3 @@
-Creating a Culture of Open Communication and Constructive Feedback
-==============================================================================================================
 
 Addressing conflict proactively is an essential component of effective conflict resolution. By creating a culture of open communication and constructive feedback, individuals and organizations can identify and address potential conflicts before they escalate. In this chapter, we will explore strategies for creating such a culture.
 

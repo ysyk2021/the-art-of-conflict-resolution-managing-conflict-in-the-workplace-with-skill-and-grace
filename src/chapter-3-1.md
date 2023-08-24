@@ -1,5 +1,3 @@
-Building Active Listening Skills
-==================================================================================
 
 Effective conflict resolution requires strong communication skills, particularly the ability to listen actively and empathetically. Active listening is a crucial component of resolving conflicts in the workplace, as it allows individuals to understand each other's perspectives and work towards solutions collaboratively. In this chapter, we'll explore some strategies for building active listening skills.
 

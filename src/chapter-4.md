@@ -1,5 +1,3 @@
-Chapter 4: Approaches to Conflict Resolution
-============================================
 
 Effective conflict resolution requires an understanding of different approaches and strategies. In this chapter, we will explore best practices for approaching conflict resolution, developing a collaborative approach to conflict resolution, and navigating power dynamics.
 

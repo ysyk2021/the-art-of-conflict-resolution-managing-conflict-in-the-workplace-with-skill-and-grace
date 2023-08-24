@@ -1,5 +1,3 @@
-Practicing Effective Communication Strategies
-===============================================================================================
 
 Effective communication is essential for resolving conflicts in the workplace. In this chapter, we will explore communication strategies that individuals can use to effectively manage conflicts.
 

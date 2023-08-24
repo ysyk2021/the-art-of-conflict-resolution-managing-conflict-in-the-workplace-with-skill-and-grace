@@ -1,5 +1,3 @@
-Chapter 8: Implementing Conflict Resolution Programs and Initiatives
-====================================================================
 
 Effective conflict resolution requires more than individual skills; it requires a culture of conflict resolution supported by programs and initiatives. In this chapter, we will explore how to develop and implement conflict resolution programs and initiatives, scale them across teams and organizations, and evaluate and adjust strategies over time.
 

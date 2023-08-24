@@ -1,5 +1,3 @@
-Addressing Conflict with Colleagues and Supervisors
-============================================================================================================
 
 Managing conflict in teams and organizations can be challenging, but it is essential for maintaining positive working relationships and achieving common goals. In this chapter, we will explore strategies for addressing conflict with colleagues and supervisors.
 

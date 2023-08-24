@@ -1,5 +1,3 @@
-Defining Conflict and its Impact on Workplace Culture and Productivity
-======================================================================================================================
 
 Conflict is a common occurrence in the workplace, affecting both workplace culture and productivity. It can arise from differences in opinions, personalities, priorities, and goals. While conflict is often viewed negatively, it can also present opportunities for growth and improvement when handled effectively. In this chapter, we will define what conflict is and explore how it impacts workplace culture and productivity.
 

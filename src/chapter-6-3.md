@@ -1,5 +1,3 @@
-Resolving Conflict across Departments and Organizations
-================================================================================================================
 
 Resolving conflict across departments and organizations can be challenging but is essential for creating a harmonious workplace. In this chapter, we will explore strategies for managing conflict in teams and organizations.
 

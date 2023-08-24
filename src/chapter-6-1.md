@@ -1,5 +1,3 @@
-Navigating Conflict Within and Between Teams
-=====================================================================================================
 
 Navigating conflict within and between teams can be challenging, but it is essential for building an effective and collaborative workplace. In this chapter, we will explore strategies for managing conflict in teams and organizations.
 

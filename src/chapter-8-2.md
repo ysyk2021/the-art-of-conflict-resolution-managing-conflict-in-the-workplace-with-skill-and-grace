@@ -1,5 +1,3 @@
-Scaling Conflict Resolution Practices across Teams and Organizations
-==========================================================================================================================================
 
 Implementing conflict resolution programs and initiatives can help teams and organizations build a culture of conflict resolution and prevent conflicts from escalating. In this chapter, we will explore strategies for implementing conflict resolution programs and initiatives.
 

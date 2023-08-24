@@ -1,5 +1,3 @@
-Developing a Collaborative Approach to Conflict Resolution
-========================================================================================================
 
 Collaborative conflict resolution is an approach that involves working together to identify shared interests and goals, find mutually beneficial solutions, and build stronger relationships. In this chapter, we will discuss the key principles of collaborative conflict resolution and provide practical strategies for implementing this approach in the workplace.
 

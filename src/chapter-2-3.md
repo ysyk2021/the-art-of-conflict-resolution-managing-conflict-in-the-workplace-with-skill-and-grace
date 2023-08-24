@@ -1,5 +1,3 @@
-Identifying the Stages of Conflict Escalation
-==============================================================================================
 
 Conflict is a natural part of human interaction, but it can escalate quickly if it is not managed effectively. In order to manage conflict in the workplace with skill and grace, it is important to understand the nature of conflict and identify the stages of conflict escalation. In this chapter, we'll explore each stage of conflict escalation.
 

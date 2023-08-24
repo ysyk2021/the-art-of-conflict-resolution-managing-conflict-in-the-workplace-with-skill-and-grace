@@ -1,5 +1,3 @@
-Understanding the Causes and Triggers of Conflict
-==================================================================================================
 
 Conflict is a complex phenomenon that can be caused by a variety of factors. To manage conflict effectively, it is important to understand the causes and triggers of conflict. In this chapter, we'll explore some of the common causes and triggers of conflict in the workplace.
 

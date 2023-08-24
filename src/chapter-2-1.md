@@ -1,5 +1,3 @@
-Recognizing Different Types of Conflict
-========================================================================================
 
 Before individuals can effectively manage conflicts in the workplace, it's important to understand the nature of conflict itself. Conflict comes in many different forms, and recognizing these different types of conflict can help individuals to better understand their underlying causes and work towards effective resolution. In this chapter, we'll explore some common types of conflict that individuals may encounter in the workplace.
 

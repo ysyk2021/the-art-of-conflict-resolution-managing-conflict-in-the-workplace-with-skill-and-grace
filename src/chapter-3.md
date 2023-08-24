@@ -1,5 +1,3 @@
-Chapter 3: Developing Conflict Resolution Skills
-================================================
 
 Effectively managing conflict requires a variety of skills, including active listening, empathy, and effective communication. In this chapter, we will explore strategies for developing these key conflict resolution skills.
 

@@ -1,5 +1,3 @@
-Chapter 5: Addressing Conflict Proactively
-==========================================
 
 Proactive conflict resolution is critical to creating a positive and productive work environment. By addressing conflict before it escalates, teams can minimize negative impacts and create a culture of open communication and collaboration. In this chapter, we will explore best practices for addressing conflict proactively.
 

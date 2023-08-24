@@ -1,5 +1,3 @@
-Developing Empathy and Perspective-Taking
-===========================================================================================
 
 Effective conflict resolution requires the ability to understand and empathize with other individuals' perspectives. Empathy and perspective-taking can help individuals to see situations from different angles and find common ground for resolving conflicts. In this chapter, we'll explore some strategies for developing empathy and perspective-taking as conflict resolution skills.
 

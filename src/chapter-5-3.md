@@ -1,5 +1,3 @@
-Establishing Norms and Expectations Around Conflict Resolution
-==========================================================================================================
 
 Proactively addressing conflict is essential for creating a harmonious and productive workplace. In this chapter, we will explore the ways in which individuals and organizations can establish norms and expectations around conflict resolution.
 
