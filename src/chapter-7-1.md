@@ -1,5 +1,4 @@
-Chapter 6: Addressing Sensitive Topics with Empathy and Respect
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore the importance of addressing sensitive topics with empathy and respect. Sensitivity arises when discussing topics such as diversity, inclusion, personal beliefs, or other potentially contentious subjects. By approaching these conversations with sensitivity and respect, you can foster an inclusive and harmonious work environment.
 

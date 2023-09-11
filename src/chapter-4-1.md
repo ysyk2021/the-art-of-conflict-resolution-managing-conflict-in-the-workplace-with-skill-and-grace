@@ -1,5 +1,4 @@
-Chapter 9: Understanding Different Approaches to Conflict Resolution
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore various approaches to conflict resolution. Each conflict is unique, and understanding different approaches allows you to tailor your response to best address the specific situation at hand. By familiarizing yourself with these approaches and their underlying principles, you can navigate conflicts in a more informed and effective manner.
 

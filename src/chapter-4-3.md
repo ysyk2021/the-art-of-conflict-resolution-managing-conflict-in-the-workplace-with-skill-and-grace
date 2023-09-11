@@ -1,5 +1,4 @@
-Chapter 10: Navigating Power Dynamics in Conflict Resolution
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will delve into the complexities of power dynamics in conflict resolution. Power imbalances can significantly influence how conflicts unfold and are resolved. By understanding power dynamics and employing strategies that promote fairness and collaboration, you can navigate conflicts more effectively and achieve balanced resolutions.
 

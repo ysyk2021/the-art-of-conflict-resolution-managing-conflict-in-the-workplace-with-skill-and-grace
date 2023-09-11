@@ -1,5 +1,4 @@
-Chapter 2: Understanding the Causes and Triggers of Conflict
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will delve into the causes and triggers of conflicts. By understanding the underlying factors that contribute to conflicts, you can proactively address them and create a harmonious work environment. This chapter aims to enhance your awareness of the root causes of conflicts and provide insights into how to prevent or mitigate conflict situations.
 

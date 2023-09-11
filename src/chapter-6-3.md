@@ -1,5 +1,4 @@
-Chapter 12: Resolving Conflict Across Departments and Organizations
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore strategies for resolving conflict that occurs across departments and organizations. Conflicts that span different teams, departments, or even external organizations can be complex and challenging to address. However, by implementing effective approaches and communication techniques, you can navigate these conflicts with skill and achieve resolutions that benefit all parties involved.
 

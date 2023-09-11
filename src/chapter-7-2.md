@@ -1,5 +1,4 @@
-Chapter 10: Preparing for Difficult Conversations
-=================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore the importance of preparing for difficult conversations. Difficult conversations are those that involve high stakes, strong emotions, or sensitive topics. By preparing effectively, you can navigate these conversations with confidence, empathy, and a higher likelihood of achieving positive outcomes.
 

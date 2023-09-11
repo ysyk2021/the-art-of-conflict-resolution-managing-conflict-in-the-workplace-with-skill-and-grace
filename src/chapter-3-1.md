@@ -1,5 +1,4 @@
-Chapter 5: Building Active Listening Skills
-===========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore the importance of building active listening skills. Active listening is a crucial component of effective communication and conflict resolution, as it enables us to truly understand others, foster empathy, and navigate conflicts with skill and grace.
 

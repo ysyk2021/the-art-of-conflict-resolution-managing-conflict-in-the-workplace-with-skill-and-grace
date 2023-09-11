@@ -1,5 +1,4 @@
-Chapter 6: Creating a Culture of Open Communication and Constructive Feedback
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore strategies for creating a culture of open communication and constructive feedback. Fostering an environment where individuals feel safe to express themselves, share ideas, and provide feedback is essential for preventing conflicts and resolving them effectively.
 

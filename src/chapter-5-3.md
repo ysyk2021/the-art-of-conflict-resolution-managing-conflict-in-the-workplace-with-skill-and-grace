@@ -1,5 +1,4 @@
-Chapter 8: Establishing Norms and Expectations Around Conflict Resolution
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore the importance of establishing norms and expectations around conflict resolution. By setting clear guidelines and fostering a culture that values constructive conflict management, you can create a supportive environment where conflicts are addressed effectively and with grace.
 

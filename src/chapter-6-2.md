@@ -1,5 +1,4 @@
-Chapter 6: Addressing Conflict with Colleagues and Supervisors
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore effective strategies for addressing conflict with colleagues and supervisors. Conflict is a natural part of any workplace, and learning how to navigate and resolve such conflicts is essential for maintaining a harmonious and productive work environment. By developing the skills and techniques outlined in this chapter, you will be equipped to address conflicts with colleagues and supervisors in a constructive and professional manner.
 

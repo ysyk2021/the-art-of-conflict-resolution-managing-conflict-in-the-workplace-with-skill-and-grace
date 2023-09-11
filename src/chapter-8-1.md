@@ -1,5 +1,4 @@
-Chapter 7: Developing Conflict Resolution Programs and Initiatives
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore the process of developing conflict resolution programs and initiatives. By establishing structured programs and initiatives, organizations can proactively address conflicts, equip employees with necessary skills, and foster a culture of effective conflict resolution. This chapter will guide you through the key steps in developing these initiatives.
 

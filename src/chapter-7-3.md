@@ -1,5 +1,4 @@
-Chapter 8: Handling Emotional Reactions and Defusing Tension
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore strategies for handling emotional reactions and defusing tension during conflicts. Emotions play a significant role in conflicts, and effectively managing them is essential for promoting constructive dialogue and reaching positive resolutions.
 

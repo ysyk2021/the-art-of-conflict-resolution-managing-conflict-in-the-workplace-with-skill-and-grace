@@ -1,5 +1,4 @@
-Chapter 6: Developing a Collaborative Approach to Conflict Resolution
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore the importance of developing a collaborative approach to conflict resolution. Collaboration fosters open communication, understanding, and mutually beneficial solutions. By embracing collaboration, you can transform conflicts into opportunities for growth, improved relationships, and enhanced teamwork.
 

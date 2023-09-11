@@ -1,5 +1,4 @@
-Chapter 8: Scaling Conflict Resolution Practices across Teams and Organizations
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore strategies for scaling conflict resolution practices across teams and organizations. By implementing effective conflict resolution practices at a broader level, we can create a culture that values open communication, problem-solving, and collaboration, leading to healthier work environments and stronger organizational relationships.
 

@@ -1,5 +1,4 @@
-Chapter 7: Developing Empathy and Perspective-Taking
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore the importance of developing empathy and perspective-taking skills. By cultivating empathy and the ability to see things from others' perspectives, we can deepen our understanding, build stronger connections, and effectively navigate conflicts in the workplace.
 

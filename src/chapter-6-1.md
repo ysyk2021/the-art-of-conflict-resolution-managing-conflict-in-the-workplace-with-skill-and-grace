@@ -1,5 +1,4 @@
-Chapter 8: Navigating Conflict within and between Teams
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore strategies for effectively navigating conflict within and between teams. Conflicts between team members can negatively impact productivity, morale, and collaboration. By understanding the dynamics of team conflict and employing effective resolution techniques, you can foster a harmonious work environment and enhance team effectiveness.
 

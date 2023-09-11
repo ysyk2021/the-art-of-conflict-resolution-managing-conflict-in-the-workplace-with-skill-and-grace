@@ -1,5 +1,4 @@
-Chapter 10: Evaluating and Adjusting Conflict Resolution Strategies Over Time
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore the importance of evaluating and adjusting conflict resolution strategies over time. As organizational dynamics evolve and new challenges arise, it is essential to regularly assess the effectiveness of existing strategies and make necessary adjustments. This continuous improvement process ensures that conflict resolution practices remain relevant, effective, and aligned with the changing needs of individuals and teams.
 

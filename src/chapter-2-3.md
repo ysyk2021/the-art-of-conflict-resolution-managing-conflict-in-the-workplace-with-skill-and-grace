@@ -1,5 +1,4 @@
-Chapter 4: Identifying the Stages of Conflict Escalation
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore the stages of conflict escalation. Understanding these stages is crucial for effectively managing conflicts before they spiral out of control. By recognizing the signs and patterns of escalating conflicts, you can intervene early and employ appropriate strategies to prevent further escalation.
 

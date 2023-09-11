@@ -1,5 +1,4 @@
-Chapter 4: Addressing Conflict Before it Escalates
-==================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will explore strategies for addressing conflict before it escalates. By recognizing early warning signs, proactively intervening, and implementing preventive measures, you can prevent conflicts from escalating into more significant issues that disrupt productivity and harm relationships.
 

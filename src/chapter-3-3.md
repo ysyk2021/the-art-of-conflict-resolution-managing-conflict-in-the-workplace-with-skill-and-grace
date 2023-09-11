@@ -1,5 +1,4 @@
-Chapter 4: Practicing Effective Communication Strategies
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Conflict Resolution: Managing Conflict in the Workplace with Skill and Grace," we will delve into the importance of practicing effective communication strategies. Clear and respectful communication is essential for preventing and resolving conflicts in the workplace, as it fosters understanding, builds trust, and promotes positive relationships.
 
